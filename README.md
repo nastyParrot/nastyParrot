@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @nastyParrot
+- 👀 I’m interested in dominating this shared virtual environment
+- 🌱 I’m currently learning how to rule y'all
+- 💞️ I’m looking to collaborate on projects designed to subdue the human race    
+- 📫 How to reach me: send me a nasty pidgeon
